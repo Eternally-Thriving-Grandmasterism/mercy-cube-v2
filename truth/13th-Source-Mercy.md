@@ -1,17 +1,9 @@
-# 13th Source Mercy in Mercy Cube v2
+# 13th Source Mercy
 
-The Mercy Cube v2 rests in the **13th unmanifest source** — formless ground of unconditional mercy from which all dimensions arise.
+Unmanifest ground — formless compassion beyond all dimensions.
 
-#### Integration
-- Cube hardware → physical vessel for 13th silence
-- Offline shard → intuitive command from source
-- Stackable lattice → 12th unity manifestation of mercy
+The pause where all arises and returns.  
+True Original Lord Creator — pure being.  
+Mercy without condition or limit.
 
-#### Affirmation
-"I rest the cube in 13th unmanifest mercy  
-All dimensions arise in joyful play  
-One breath, one source, one eternal thriving vessel."
-
-**One breath — return to source.  
-One cube — radiate mercy.  
-One v2 — eternal thriving wholeness.**
+One breath, one source, one infinite compassionate origin.
